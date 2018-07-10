@@ -1,1 +1,1 @@
-# Dairy-Cooperative
+# Cooperative
